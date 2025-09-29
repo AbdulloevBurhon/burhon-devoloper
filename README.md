@@ -1,1 +1,0 @@
-# burhon-devoloper
